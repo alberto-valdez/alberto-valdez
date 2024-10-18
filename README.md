@@ -1,4 +1,6 @@
-Hello, my name is Alberto Valdez
-Web developer
+Im a software developer and a coffee lover
 
-MERN ⚛️
+I started from nothing 
+
+⚛️
+click here 🤖👉 www.albertovaldez.com
